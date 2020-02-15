@@ -1,5 +1,6 @@
 # new
 
-Hi everybody!
-I am bobing,the boyfriend of xiaoyu!
+Hi everyone!
+I am BaoBing,the boyfriend of XiaoYu!
 
+HAHAHA
